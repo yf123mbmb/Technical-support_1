@@ -1,4 +1,4 @@
 沃茹民宿技术支持
 
-本应用有任何问题请联系我们，邮箱：leonardyu14810@gmail.com
+本应用有任何问题请联系我们，邮箱：jasminejeromejfx@gmail.com
 
